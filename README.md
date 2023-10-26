@@ -1,2 +1,3 @@
-# promte-nigeiring-citdell-
+Grand Prompt Engineering Citadel
+
 Grand Prompt Engineering Citadel 🌟🏰🌌
